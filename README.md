@@ -1,1 +1,1 @@
-damn man i should edit this
+${\color{black} damn \space man \space i \space should \space edit \space this }$
