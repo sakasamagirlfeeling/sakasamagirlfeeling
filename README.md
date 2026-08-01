@@ -13,7 +13,7 @@
 <img width="640" height="24" alt="tumblr-gif" src="https://github.com/user-attachments/assets/b8b32bb2-0840-4367-a0d6-bd5babd166c7" />
 </p>
 <p align=center>
-<img width="218" height="62" alt="image" src="https://github.com/user-attachments/assets/cb7e02b2-2130-41f9-9792-772582707ece" />
+
 </p>
 <p align=center>
 <img width="418" height="418" alt="image" src="https://github.com/user-attachments/assets/ef04f422-b92a-4024-8fdd-e457994f919e" />
