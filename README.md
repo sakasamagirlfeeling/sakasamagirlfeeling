@@ -25,7 +25,7 @@
 <img width="640" height="24" alt="tumblr-gif" src="https://github.com/user-attachments/assets/b8b32bb2-0840-4367-a0d6-bd5babd166c7" />
 </p>
 
- <a href="https://github.com/pt-walk-of-fame">ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ᴏꜱᴀɢᴇ ᴄʜᴀɴ</a> / <a href="https://github.com/pt-fashion">ALSO ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ᴏꜱᴀɢᴇ ᴄʜᴀɴ</a>
+ <a href="https://github.com/pt-walk-of-fame">ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ᴏꜱᴀɢᴇ ᴄʜᴀɴ</a> / <a href="https://github.com/pt-fashion">ALSO ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ᴏꜱᴀɢᴇ ᴄʜᴀɴ</a> \ <a href="https://github.com/pt-hall-of-media">ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ꜱᴀᴋᴀꜱᴀᴍᴀ ɢɪʀʟ ꜰᴇᴇʟɪɴɢ (ʙᴏɪɪɪ)</a>
 
  <sub>
  tysm btw
