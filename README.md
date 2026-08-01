@@ -26,3 +26,6 @@
 </p>
 
  <a href="https://github.com/pt-walk-of-fame">ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ᴏꜱᴀɢᴇ ᴄʜᴀɴ</a> / <a href="https://github.com/pt-fashion">ALSO ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ᴏꜱᴀɢᴇ ᴄʜᴀɴ</a>
+
+ <sub>
+ tysm btw
