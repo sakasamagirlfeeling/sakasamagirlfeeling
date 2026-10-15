@@ -13,10 +13,11 @@
 <img width="640" height="24" alt="tumblr-gif" src="https://github.com/user-attachments/assets/b8b32bb2-0840-4367-a0d6-bd5babd166c7" />
 </p>
 <p align=center>
-
+<img width="400" height="225" alt="HShdQtpb0AAN6XC" src="https://github.com/user-attachments/assets/7f35f800-3b93-471f-8273-51f7218b7cda" />
 </p>
 <p align=center>
-<img width="418" height="418" alt="image" src="https://github.com/user-attachments/assets/ef04f422-b92a-4024-8fdd-e457994f919e" />
+
+
 </p>
 <p align=center> 
  <a href="https://katsubat.straw.page">ꜱᴛʀᴀᴡ.ᴘᴀɢᴇ</a> / <a href="https://en.pronouns.page/@katsu104">ᴘʀᴏɴᴏᴜɴꜱ.ᴘᴀɢᴇ</a> \ <a href="https://katsu104.atabook.org">新ʙᴏᴏᴋ</a>
