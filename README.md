@@ -10,7 +10,8 @@
 
 <br />
 <p align=center>
-<img width="640" height="24" alt="tumblr-gif" src="https://github.com/user-attachments/assets/b8b32bb2-0840-4367-a0d6-bd5babd166c7" />
+<img width="550" height="75" alt="heartbeat2" src="https://github.com/user-attachments/assets/e32b7452-c3c8-4c3d-b2c2-e298c056754d" />
+
 </p>
 <p align=center>
 <img width="400" height="225" alt="HShdQtpb0AAN6XC" src="https://github.com/user-attachments/assets/7f35f800-3b93-471f-8273-51f7218b7cda" />
@@ -23,7 +24,8 @@
  <a href="https://katsubat.straw.page">ꜱᴛʀᴀᴡ.ᴘᴀɢᴇ</a> / <a href="https://en.pronouns.page/@katsu104">ᴘʀᴏɴᴏᴜɴꜱ.ᴘᴀɢᴇ</a> \ <a href="https://katsu104.atabook.org">新ʙᴏᴏᴋ</a>
 </p>  
 <p align=center>
-<img width="640" height="24" alt="tumblr-gif" src="https://github.com/user-attachments/assets/b8b32bb2-0840-4367-a0d6-bd5babd166c7" />
+<img width="550" height="75" alt="heartbeat2" src="https://github.com/user-attachments/assets/1800629c-2cab-4473-83b9-314da2a9fd22" />
+
 </p>
 
  <a href="https://github.com/pt-walk-of-fame">pt-walk-of-fame</a> / <a href="https://github.com/pt-fashion">pt-fashion</a> \ <a href="https://github.com/pt-hall-of-media">pt-hall-of-media</a>
