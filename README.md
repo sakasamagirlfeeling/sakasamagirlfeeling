@@ -29,7 +29,7 @@
  <a href="https://github.com/pt-walk-of-fame">pt-walk-of-fame</a> / <a href="https://github.com/pt-fashion">pt-fashion</a> \ <a href="https://github.com/pt-hall-of-media">pt-hall-of-media</a>
 
  <sub>
- tysm btw
+hey!! creds to 00hoot on x
    
 <div align="center">
 <br />
