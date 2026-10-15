@@ -1,7 +1,7 @@
 <div align="center">
 <br />
   
-![](https://komarev.com/ghpvc/?username=sakasamagirlfeeling&color=lightgrey&label=inabakumorilings)
+![](https://komarev.com/ghpvc/?username=sakasamagirlfeeling&color=red&label=ghostlings)
 <br />
 <div align="center">
 <br />
