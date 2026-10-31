@@ -41,6 +41,12 @@
 
  <a href="https://github.com/pt-walk-of-fame">pt-walk-of-fame</a> / <a href="https://github.com/pt-fashion">pt-fashion</a> \ <a href="https://github.com/pt-hall-of-media">pt-hall-of-media</a> \ <a href="https://github.com/Ponytowns-rewards">ponytowns-rewards</a>
 
+<br>
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=kv1htbu7y6jw9192j8jzjopxg&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&mode=light&bar_color=0afffb&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+</div>
+
  <sub>
 hey!! creds to 00hoot on x
    
